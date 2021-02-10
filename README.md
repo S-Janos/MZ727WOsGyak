@@ -1,0 +1,1 @@
+# MZ727W Operációs rendszerek gyakorlat vagyok
